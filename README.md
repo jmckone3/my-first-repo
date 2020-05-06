@@ -1,4 +1,4 @@
-# Sean KrossJosh McKone
+# Josh McKone
 
 ### Geography
 
